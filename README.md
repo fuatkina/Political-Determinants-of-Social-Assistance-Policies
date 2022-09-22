@@ -17,3 +17,4 @@ Social assistance programs and the related literature are proliferating globally
 
 Citation:
 
+Erdem Yörük, Mehmet Fuat Kina & Ali Bargu (2022) Political Determinants of Social Assistance Policies: A Critical Global Comparative Systematic Literature Review, Journal of Comparative Policy Analysis: Research and Practice, DOI: 10.1080/13876988.2022.2098721
